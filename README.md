@@ -1,4 +1,4 @@
-### Hlo Everyone,I am <a href="https://Nitesh-17.github.io/My-Resume/"> Nitesh</a> 👋
+### Hlo Everyone,I am <a href="file:///C:/Users/om/Desktop/resume/index.html"> Nitesh</a> 👋
 
 
 
